@@ -1,5 +1,5 @@
 # Um pouco de mim.
-Dinamismo e empreendedorismo são as características que definem o meu perfil profissional. Com uma história de sucesso em negócios próprios e colaborações com outras empresas, reiniciei minha jornada na área de desenvolvimento. Minha paixão por resolução de problemas e aprendizado contínuo me trouxeram a essa área novamente.
+Dinamismo e empreendedorismo são as características que definem o meu perfil profissional. Com uma história de em negócios próprios e colaborações com outras empresas, reiniciei minha jornada na área de desenvolvimento. Minha paixão por resolução de problemas e aprendizado contínuo me trouxeram a essa área novamente.
 
 Com minhas experiências diversas, trago uma perspectiva única e habilidades que somarão muito nessa jornada. Desenvolvi habilidades de liderança, gerenciamento, planejamento e gestão de crises. Também sou organizado, empático e automotivado.
 
